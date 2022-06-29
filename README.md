@@ -1,6 +1,6 @@
 😈 King Mặsặdặ
 
-     🖕🏼  ᛩ~King Mặsặdặ~ᚹ
+     ᛩ King Mặsặdặ ᚹ
 
          ~  KingDotNet
            ~  KingDotIO
@@ -21,7 +21,5 @@ And I love stirring up sh!t and troll
 - 💞️ heart attacks?  ...
 - 📫 How to reach your mom ...
 
-<!---
 kingdotIO/kingdotIO is a ✨ evil ✨ repository because its `README.md` (this file) appears on your sisters GitHub profile.
 You can click the Preview link to take a look at your dumbassness.
---->
